@@ -1,1 +1,1 @@
-[dessie.xyz](https://dessie.xyz)
+[About Desnetwork](https://dessieowo.com/about)
