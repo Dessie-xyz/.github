@@ -1,1 +1,1 @@
-[About Desnetwork](https://dessieowo.com/about#desnetwork)
+[About Desnetwork](https://www.dessieowo.com/about#desnetwork)
